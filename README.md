@@ -4,5 +4,5 @@
 
 2、idea 下载
 
-    idea激活码 https://segmentfault.com/a/1190000021220727?utm_source=tag-newest
+    idea激活码 http://idea.medeming.com/jihuoma/
     
